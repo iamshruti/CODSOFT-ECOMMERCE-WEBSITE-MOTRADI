@@ -1,0 +1,2 @@
+# CODSOFT-ECOMMERCE-WEBSITE-MOTRADI
+A clean and elegant BLEND of TRADITIONAL and MODERN FASHION in an ECOMMERCE website design named as " MOTRADI " &lt;33
